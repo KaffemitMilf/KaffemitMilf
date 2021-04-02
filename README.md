@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KaffemitMilf,Arne and born in 2005
-- 👀 I’m interested in Python and hacking
+- 👀 I’m interested in Python and more
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on everything
 
